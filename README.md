@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ryanshumway
-- I'm a designer than thinks the future is bleak—-I should learn to code so I don't starve to death.
+- I'm a designer than thinks the future might be bleak—-I should learn to code so I don't starve to death.
 - 📫 ryanshumway@duck.com
