@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ryanshumway
-- I like building stuff, breaking stuff, and bread
-- 📫 ryanshumway@duck.com
+- I like building stuff, breaking stuff, and cinnamon rolls 🍩
+- 📫 ryan.shumway91@gmail.com
